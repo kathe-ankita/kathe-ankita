@@ -1,4 +1,4 @@
-# Hi, I'm Suyash Tidke 👋
+# Hi, I'm Ankita Kathe
 
 BCA student from Nashik, India.  
 
